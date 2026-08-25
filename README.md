@@ -7,3 +7,5 @@ Tenho interesse em Tecnologia da Informação, especialmente em infraestrutura, 
 Também possuo experiência em gestão de projetos por meio do STEM Racing (F1 in Schools), onde atuei como gestor de uma equipe, desenvolvendo competências em organização, planejamento, documentação, trabalho em equipe e administração de recursos.
 
 Este perfil reúne meus estudos, projetos e experiências enquanto continuo construindo minha carreira na área de tecnologia.
+
+Perfil no LinkedIn: https://www.linkedin.com/in/davi-penha-778557405/ 
